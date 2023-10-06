@@ -6,23 +6,6 @@
 
 <a name="_ed8c8ns4fgez"></a>**CASE STUDY**
 
-
-#
-
-
-
-
-
-
-
-
-
-
-
-#
-
-
-
 # ![ref2]
 # <a name="_921gikj9xv3d"></a><a name="_91k9guql50j9"></a><a name="_940bn1q2chx1"></a><a name="_neox3iubf91n"></a>**TABLE OF CONTENTS**
 
